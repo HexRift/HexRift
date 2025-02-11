@@ -1,5 +1,5 @@
 # 💫 About Me:
-Age: 26<br>Hobbies: Cars & Tech<br>Certified: FreakHound<br>Relationship: Taken<br>Website: https://hexarion.net<br>Discord: [hexarion.net/discord](https://hexarion.net/discord)<br>Mod Menu Reseller<br>Part Time Developer
+Age: 26<br>Hobbies: Cars & Tech<br>Certified: FreakHound<br>Relationship: Single<br>Website: https://hexarion.net<br>Discord: [hexarion.net/discord](https://hexarion.net/discord)<br>Mod Menu Reseller<br>Part Time Developer
 
 
 ## 🌐 Socials:
