@@ -1,5 +1,5 @@
 # 💫 About Me:
-Age: 26<br>Hobbies: Cars & Tech<br>Certified: FreakHound<br>Relationship: Single<br>Website: https://hexrift.net<br>Discord: [hexrift.net/discord](https://hexrift.net/discord)<br>Mod Menu Reseller<br>Part Time Developer
+Age: 26<br>Hobbies: Cars & Tech<br>Certified: FreakHound<br>Relationship: Single<br>Website: [hexrift.net](https://hexrift.net)<br>Discord: [hexrift.net/discord](https://hexrift.net/discord)<br>Mod Menu Reseller<br>Part Time Developer
 
 
 ## 🌐 Socials:
